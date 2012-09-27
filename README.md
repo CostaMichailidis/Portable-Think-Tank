@@ -39,8 +39,8 @@ These are just a few options. Go with whoever helps you generate ideas!
 11. Thor
 12. ET
 13. Homer Simpson
-14. Neil Armstrong (RIP you awesome motha lova!)
-15. George Carlin (RIP you awesome motha lova!)
+14. Neil Armstrong (RIP you awesome mofo!)
+15. George Carlin (RIP you awesome mofo!)
 16. Socrates
 17. Morpheus
 18. The Oracle
