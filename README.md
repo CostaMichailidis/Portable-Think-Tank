@@ -53,6 +53,8 @@ These are just a few options. Go with whoever helps you generate ideas!
 25. Professor X
 26. Tigger
 27. Jon Stewart
-28. ...
+28. Rosa Parks
+29. Gaby Douglas
+30. ...
 
 Have fun with it!!!
