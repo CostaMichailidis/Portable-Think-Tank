@@ -24,7 +24,7 @@ Lastly, feel free to add new members to your **Think Tank** or fire those that d
 Who should I have in my think tank?
 ===================================
 
-These are just a list of options. Go with whoever helps you generate ideas!
+These are just a few options. Go with whoever helps you generate ideas!
 
 1. Hercules
 2. George Washington
