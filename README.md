@@ -17,7 +17,7 @@ How to Use Portable Think Tank
 
 First, build your **Think Tank**, your group of stellar thinkers or just a group of characters you fancy. Mine's got Aristotle, Lisa Simpson and Bugs Bunny in it. Then, make it **Portable**. Arrange their pictures on a collage and print it out or make it your desktop (or smartphone) background. If you're incredibly short on time or motivation just make a mental picture ; )
 
-Now, you can use your **Portable Think Tank** when you are in the **Idea Generation** stage of problem solving and you'd like to generate more ideas or more novel ideas. As your listing out ideas, just as, yourself, "What would **Bugs Bunny** do?" "What about Winnie the Pooh?" or whoever you have in your **Tank**.
+Now, you can use your **Portable Think Tank** when you are in the **Idea Generation** stage of problem solving and you'd like to generate more ideas or more novel ideas. As your listing out ideas, just ask yourself, "What would **Bugs Bunny** do?" "What about Winnie the Pooh?" or whoever you have in your **Tank**.
 
 Lastly, feel free to add new members to your **Think Tank** or fire those that don't inspire anymore.
 
