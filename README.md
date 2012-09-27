@@ -10,4 +10,4 @@ Objectives
 
 1. Help you to generate ideas.
 2. Bring novelty to your thinking.
-3. Make __Idea Generation__ fun and engaging.
+3. Make **Idea Generation** fun and engaging.
