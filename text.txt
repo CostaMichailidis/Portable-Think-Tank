@@ -1,1 +1,1 @@
-A text file so something's in here.
+A text file so something's in here, git apparently won't work with just a readme file.
